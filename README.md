@@ -1,8 +1,8 @@
 # Hola, soy Diego Hortelano 👋
 
-**SEO Specialist en Media Power** · Madrid, España
+**SEO Specialist** · Madrid, España
 
-Ayudo a negocios a ganar visibilidad en buscadores: posicionamiento orgánico, SEO técnico y estrategia de contenidos.
+Ayudo a negocios a ganar visibilidad en buscadores: posicionamiento orgánico, GEO, SEO técnico y estrategia de contenidos.
 
 ## 📫 Contacto
 
